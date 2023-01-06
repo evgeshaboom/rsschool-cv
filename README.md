@@ -1,5 +1,1 @@
-https://evgeshaboom.github.io/rsschool-cv/cv
-
-https://evgeshaboom.github.io/rsschool-cv/
-
-1
+https://rolling-scopes-school.github.io/evgeshaboom-JSFEPRESCHOOL2022Q4/plants/
